@@ -1,0 +1,1 @@
+Hello!I am Mounika currently pursuing a degree at Krishna Chaitanya Degree College. I actively learning Python, HTML, and CSS, and I also takes part in sports. My dedication to both academics and extracurricular activities highlights my well-rounded skill set and enthusiasm for growth and learning.
